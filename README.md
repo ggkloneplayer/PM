@@ -5,3 +5,4 @@
 # [Standart](https://disk.yandex.ru/d/8uQdeMlDgMSufA)
 # [UP.02](https://disk.yandex.ru/d/htrNF902_l8jLw)
 # [UP.04](https://disk.yandex.ru/d/iU1yBlYYDbjjdQ)
+# [Speskurs](https://disk.yandex.ru/d/cuVpeiR2LUNb3g)
